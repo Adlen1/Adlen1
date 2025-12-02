@@ -3,7 +3,7 @@
 📍 Bordj-El-Kiffan, Algiers  
 📧 Email: [alliouaneadlen619@gmail.com](mailto:alliouaneadlen619@gmail.com)  
 📧 School Email: [na_alliouane@esi.dz](mailto:na_alliouane@esi.dz)  
-🔗 LinkedIn: [Alliouane Adlen](https://www.linkedin.com/in/alliouane-adlen)  
+🔗 LinkedIn: [Alliouane Adlen]([https://www.linkedin.com/in/alliouan](https://www.linkedin.com/in/adlen-alliouane-4905352b8/))  
 
 ---
 
